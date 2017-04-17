@@ -1,2 +1,7 @@
 # hello-world
-1st thing 1st
+
+Hi my darlings,
+
+EHHHHHh  I LIKE YOU A LOT.
+<(^.^<)MOLLY<(^.^<)
+CHEERS
